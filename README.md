@@ -1,2 +1,2 @@
 # Self-Intro
-Currently, a student studying Economics
+An economics student who wishes to be cross-disciplinary 
